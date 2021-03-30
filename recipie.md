@@ -1,0 +1,1 @@
+You simply combine vanilla ice cream, milk of your choice, and a few Oreo cookies. Then, blend until your desired consistency is reached! If you want your shakes to have a few chunks of cookie, then just pulse a few times in the blender. If you want them mostly smooth, just blend a little more
